@@ -1,4 +1,4 @@
-# 澳大利亚上网卡怎麽註冊google[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 澳大利亚上网卡怎麽註冊google[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在澳大利亚，如果你刚刚拿到了一张新的上网卡（sim卡），并且想要注册Google账户，那么这篇文章将为你提供详细的步骤和一些实用的小贴士。无论你是初次使用澳大利亚的移动网络还是第一次尝试注册Google账户，这篇文章都会帮助你顺利地完成这一过程。
 
@@ -48,4 +48,4 @@
 
 通过以上步骤，你应该已经成功注册了一个Google账户。现在，你可以开始享受Google提供的各种服务了，比如Gmail、Google Drive、Google Maps等等。
 
-希望这篇文章能帮助你在澳大利亚顺利地注册Google账户。如果你有任何疑问或遇到困难，欢迎随时留言讨论！[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+希望这篇文章能帮助你在澳大利亚顺利地注册Google账户。如果你有任何疑问或遇到困难，欢迎随时留言讨论！[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

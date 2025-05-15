@@ -1,4 +1,4 @@
-**澳大利亚三日卡可以注册ChatGPT吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚三日卡可以注册ChatGPT吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 最近，有不少小伙伴在问关于澳大利亚三日卡能不能用来注册ChatGPT的问题。这事儿听起来挺简单的，但实际上涉及到了不少细节和背景知识。为了帮助大家更好地了解这个问题，今天我们就来聊聊澳大利亚三日卡到底能不能注册ChatGPT，以及相关的注意事项。
 
@@ -52,4 +52,4 @@
 
 最后，再强调一遍，虽然澳大利亚三日卡可以用来注册ChatGPT，但在实际操作时仍需注意网络环境和个人设备状况。希望大家都能顺利开启自己的ChatGPT之旅！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

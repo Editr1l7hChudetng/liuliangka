@@ -1,4 +1,4 @@
-**澳大利亚eSIM卡怎么打电话？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚eSIM卡怎么打电话？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，eSIM卡已经成为一种非常流行的移动通信解决方案。无论是短期旅行者还是长期居住的居民，使用eSIM卡都能享受便捷、灵活的服务。然而，对于初次接触eSIM卡的人来说，可能会对如何使用它来拨打电话感到困惑。本文将详细介绍澳大利亚eSIM卡的使用方法，帮助大家轻松掌握如何通过eSIM卡拨打电话。
 
@@ -57,4 +57,4 @@
 
 无论你是技术小白还是资深用户，eSIM卡都能为你带来便利。下次当你在澳大利亚旅行或工作时，不妨试试eSIM卡，体验一下现代科技带来的便捷吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -1,4 +1,4 @@
-**澳大利亚上网卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚上网卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，很多人选择使用上网卡来满足日常的网络需求，无论是旅行、留学还是工作，上网卡都成为了一种便捷的选择。然而，对于一些喜欢使用即时通讯工具的人来说，可能会有一个疑问：澳大利亚的上网卡是否可以用来注册Telegram呢？这是一个非常实际的问题，尤其是在当前全球化交流日益频繁的情况下。
 
@@ -46,4 +46,4 @@ Telegram的注册过程相对简单，用户只需提供一个有效的手机号
 
 无论你是留学生、旅行者还是工作者，Telegram都能为你提供高效、安全的沟通方式。希望这篇文章能帮助你更好地了解如何在澳大利亚使用上网卡注册Telegram。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
