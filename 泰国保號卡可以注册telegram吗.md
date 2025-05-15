@@ -1,4 +1,4 @@
-**泰国保号卡能注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**泰国保号卡能注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个数字化时代，通讯工具的重要性不言而喻。而提到国际化的即时通讯软件，Telegram无疑是一个绕不开的名字。它以其强大的加密功能、丰富的功能设置和跨平台支持，赢得了全球无数用户的青睐。对于那些身处泰国的用户来说，一个问题常常困扰着他们：使用泰国的保号卡能否成功注册Telegram呢？
 
@@ -20,4 +20,4 @@
 
 当然，随着科技的发展，未来的通讯方式或许会有更多的可能性。但无论如何，Telegram作为一种高效、安全的通讯工具，始终会在我们的生活中占据重要地位。如果你还在犹豫是否要注册Telegram，不妨现在就行动起来吧！相信它会给你的生活带来意想不到的变化。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
