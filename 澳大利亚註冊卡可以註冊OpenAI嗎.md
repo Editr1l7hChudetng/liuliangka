@@ -1,4 +1,4 @@
-**澳大利亚注册卡可以注册OpenAI吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚注册卡可以注册OpenAI吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好，今天咱们来聊聊一个很多人都会好奇的问题：澳大利亚的注册卡到底能不能用来注册OpenAI？这事儿听起来简单，但其实里面有不少门道和细节需要弄清楚。如果你对这个话题感兴趣，或者正好有类似的需求，那就继续往下看吧！
 
@@ -45,4 +45,4 @@ OpenAI会对用户的IP地址进行检查，以确保用户来自合法地区。
 
 **总结一下**：只要满足条件并注意细节，大多数人都能够顺利地用澳大利亚注册卡注册OpenAI账户。不过具体情况因人而异，所以还是要根据自身情况灵活应对。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

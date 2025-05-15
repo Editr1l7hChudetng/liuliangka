@@ -1,4 +1,4 @@
-**澳大利亚电话卡怎麽註冊OpenAI[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚电话卡怎麽註冊OpenAI[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，使用电话卡注册OpenAI并不是一件复杂的事情，但如果你是第一次接触这个流程，可能会觉得有点繁琐。这篇文章将带你一步步了解如何在澳大利亚使用电话卡注册OpenAI，无论是新手还是有经验的用户，都可以找到适合自己的方法。
 
@@ -66,4 +66,4 @@
 
 无论你是对人工智能充满好奇的新手，还是希望进一步探索AI领域的专业人士，OpenAI都能为你提供丰富的资源和技术支持。希望这篇文章能帮助到你，祝你在澳大利亚的生活和学习一切顺利！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
