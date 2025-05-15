@@ -1,4 +1,4 @@
-**澳大利亚手机卡怎麽註冊TG[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚手机卡怎麽註冊TG[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，使用手机卡注册Telegram（简称TG）是一个相对简单的过程，但如果你是第一次尝试，可能会觉得有些复杂。其实只要按照步骤一步步来，很快就能搞定。这篇文章就来详细讲解如何在澳大利亚使用本地手机卡注册Telegram，并分享一些小技巧和注意事项。
 
@@ -26,4 +26,4 @@
 
 最后，不要忘记定期更新你的Telegram版本以获取最新的功能改进和安全补丁。同时也要注意保护个人信息的安全，避免泄露敏感信息给不可信的人或组织。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

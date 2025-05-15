@@ -1,4 +1,4 @@
-**澳大利亚护照卡如何注册Google账户？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚护照卡如何注册Google账户？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，护照卡（Passport Card）是一种便捷的身份证明文件，它与护照本类似，但更轻便，适合日常使用。许多人可能会好奇，这种卡片是否可以用于注册Google账户。答案是肯定的！虽然护照卡不能直接作为主要身份验证工具，但它可以作为一种辅助手段来完成注册流程。今天，我们就来详细讲解一下如何用澳大利亚护照卡注册Google账户。
 
@@ -69,4 +69,4 @@ Google会提示你绑定一个手机号码。输入你的澳大利亚手机号�
 
 无论你是初次接触Google账户，还是想了解更多关于护照卡的应用，都欢迎随时提问。记得关注我们的频道，获取更多实用的信息和技术支持！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

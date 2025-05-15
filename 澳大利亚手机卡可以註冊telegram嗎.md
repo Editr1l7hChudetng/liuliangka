@@ -1,4 +1,4 @@
-**澳大利亚手机卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚手机卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，使用本地手机卡注册Telegram并不是一件复杂的事情。然而，这一过程可能会因多种因素而有所不同，包括您所使用的运营商、您的手机卡类型以及当地的网络政策。本文将为您详细解析如何在澳大利亚成功注册Telegram，并分享一些实用的技巧和注意事项。
 
@@ -32,4 +32,4 @@
 
 综上所述，在澳大利亚使用本地手机卡注册Telegram是完全可行的。只要您遵循正确的步骤并注意相关细节，就能轻松享受到这款强大通讯工具带来的便利。希望本文能为您提供足够的帮助，让您在澳大利亚也能畅享Telegram的乐趣！ 
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
