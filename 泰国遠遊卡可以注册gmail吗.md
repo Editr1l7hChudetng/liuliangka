@@ -1,4 +1,4 @@
-# 泰国远游卡可以注册Gmail吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 泰国远游卡可以注册Gmail吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 随着全球化的发展，越来越多的人选择出国旅游或工作。而泰国作为东南亚的热门旅游目的地之一，吸引了无数游客前往。无论是短期旅行还是长期居住，手机通讯工具的重要性不言而喻。对于需要在国外使用手机的用户来说，购买当地的SIM卡无疑是最便捷的选择之一。
 
@@ -20,4 +20,4 @@
 - 提前规划好备用方案以应对突发状况。
 - 不同品牌远游卡存在一定差异，请仔细挑选适合自己的产品。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
