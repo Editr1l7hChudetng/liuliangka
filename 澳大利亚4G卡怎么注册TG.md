@@ -1,4 +1,4 @@
-# 澳大利亚4G卡怎么注册TG？轻松搞定，附详细步骤指南[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 澳大利亚4G卡怎么注册TG？轻松搞定，附详细步骤指南[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在澳大利亚，无论是留学生、游客还是长期居住者，拥有一张本地的4G手机卡都是生活和学习的必备品。而Telegram（简称TG）作为一款全球流行的即时通讯软件，以其安全性和多功能性受到广泛欢迎。那么问题来了：如果你刚到澳大利亚，手头只有本地的4G卡，该如何注册Telegram呢？
 
@@ -48,4 +48,4 @@
 
 最后再次提醒大家，为了更好的用户体验，请务必遵守当地法律法规和社会公德心，共同维护健康和谐的网络环境。祝每位读者都能顺利开启属于自己的Telegram之旅！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

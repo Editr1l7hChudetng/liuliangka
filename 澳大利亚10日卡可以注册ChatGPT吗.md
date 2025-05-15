@@ -16,6 +16,6 @@
 
 无论你是科技爱好者、学生还是职场人士，掌握这些技巧都能让你更好地融入数字世界。希望这篇文章能为你带来帮助！如果你还有其他疑问，欢迎随时留言交流。
 
-**总结一下，澳大利亚10日卡理论上可以注册ChatGPT，但需要满足一定的条件[[TG💪+ @donk5151](https://t.me/s/donk5151)]。**
+**总结一下，澳大利亚10日卡理论上可以注册ChatGPT，但需要满足一定的条件[[TG💪+ @esim1088](https://t.me/s/esim1088)]。**
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
