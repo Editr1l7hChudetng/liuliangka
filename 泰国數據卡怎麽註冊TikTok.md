@@ -1,4 +1,4 @@
-**泰国数据卡注册TikTok全过程指南[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**泰国数据卡注册TikTok全过程指南[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个社交媒体盛行的时代，TikTok无疑成为了全球最受欢迎的应用之一。无论你是想分享自己的生活点滴，还是单纯地想要消磨时间，TikTok都能满足你的需求。不过，对于身在泰国的用户来说，注册TikTok可能会遇到一些小问题，尤其是涉及到数据卡的使用。今天，我们就来详细讲解一下如何使用泰国数据卡顺利注册TikTok。
 
@@ -46,4 +46,4 @@
 
 总之，只要掌握了正确的方法，并且保持积极乐观的态度，相信每位泰国用户都能够愉快地享受到TikTok带来的无限精彩！如果你还有什么疑问的话，随时欢迎留言交流哦~
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

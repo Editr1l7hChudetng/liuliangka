@@ -1,4 +1,4 @@
-# 泰国数据卡怎么注册line [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 泰国数据卡怎么注册line [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在泰国，Line 是一款非常受欢迎的即时通讯软件。无论你是游客还是长期居住者，在这里使用 Line 都能轻松与朋友、家人以及同事保持联系。然而，对于刚到泰国的人来说，可能会遇到一些问题，比如如何用泰国的数据卡注册 Line。今天就来详细讲解一下这个过程。
 
@@ -18,4 +18,4 @@
 
 最后提醒大家一句：在享受便利的同时也要注意保护好自己的隐私安全，合理安排时间避免沉迷其中影响正常生活节奏。希望每位用户都能够健康快乐地使用这款优秀的社交工具！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
