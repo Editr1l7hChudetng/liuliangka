@@ -1,4 +1,4 @@
-# 澳大利亚远游卡如何設置APN [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 澳大利亚远游卡如何設置APN [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在澳大利亚，许多游客和长期居住者都会选择购买当地的移动数据卡来满足日常上网需求。而提到澳大利亚的数据卡，就不得不提“远游卡”（Optus Prepaid Travel SIM Card）。这款SIM卡因其覆盖范围广、价格合理以及使用方便等特点，深受旅行者的喜爱。不过，不少人在拿到这张卡后会遇到一个问题：如何正确设置APN？APN到底是什么？别急，接下来我们就详细讲解一下。
 
@@ -53,4 +53,4 @@
 
 希望这篇文章能帮到正在准备前往澳大利亚旅行的朋友们。如果您还有其他疑问，欢迎随时留言讨论。祝大家旅途顺利，玩得开心！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

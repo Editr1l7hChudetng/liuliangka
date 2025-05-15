@@ -1,4 +1,4 @@
-**澳大利亚电话卡如何注册OpenAI？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚电话卡如何注册OpenAI？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，使用电话卡注册OpenAI并不是一件特别复杂的事情，但如果你是第一次接触这类操作，可能会觉得有点迷茫。别担心，这篇文章将为你详细讲解从选择电话卡到完成注册的全过程，让你轻松上手。
 
@@ -58,4 +58,4 @@ Vodafone则以性价比高闻名，在城市区域的表现也非常出色。如
 
 好了，以上就是关于如何在澳大利亚使用电话卡注册OpenAI的所有内容啦！希望这篇指南能够帮助到正在寻找相关信息的朋友们。如果有任何疑问或者遇到困难的地方，请随时留言交流讨论吧～
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

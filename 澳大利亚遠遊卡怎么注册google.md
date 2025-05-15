@@ -1,4 +1,4 @@
-**澳大利亚遠遊卡怎么注册Google账号？轻松几步搞定[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳大利亚遠遊卡怎么注册Google账号？轻松几步搞定[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在澳大利亚，远遊卡（Oyster Card）是一种非常实用的交通支付工具，尤其对于经常乘坐公共交通的人来说，它能带来很多便利。然而，如果你刚到澳大利亚，或者对当地的数字服务不太熟悉，可能会遇到一些小麻烦，比如如何用远遊卡注册Google账号。今天，我们就来详细聊聊这个话题。
 
@@ -44,4 +44,4 @@
 
 希望这篇指南对你有所帮助！如果你还有什么疑问或者想了解更多关于澳大利亚生活的趣事，欢迎随时留言讨论哦～
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
